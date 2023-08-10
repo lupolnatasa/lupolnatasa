@@ -1,8 +1,8 @@
 213- 👋 Hi, I’m @lupolnatasa
 - 👀 I’m interested in ...
-- 🌱 I’m currentlyert learning ...
+- 🌱 I’m currxcv..
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...asfvx
+- 📫 How to resdach me ...asfvx
 etyettrasd
 <!---
 lupolnatasa/lupolnatasa is a ✨ special ✨ reiulpository because its `README.md` (this file) appearsads on your GicnmbtHub profile.
