@@ -1,6 +1,6 @@
 213- 👋 Hi, I’m @lupolnatasa
 - 👀 I’m interested in ...
-- 🌱 I’m currxcv..asdac
+- 🌱 I’m currxcv..asdacxasxsax
 - 💞️ I’m looking to collaborate on ...zczxcx
 - 📫 How to resdach me ...asfvx
 etyettrasd
