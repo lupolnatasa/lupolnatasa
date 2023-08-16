@@ -6,7 +6,7 @@
 etyettrasd
 <!---
 lupolnatasa/lupolnatasa is a ✨ special ✨ reiulpository because its `README.md` (this file) appearsads on your GicnmbtHub profile.
-You can click the Preview link to takex a look at your changes.sda
+You can click the Preview link tиcvbаobv takex a look at your changes.sda
 --->ads
 ssfc
 cxa
