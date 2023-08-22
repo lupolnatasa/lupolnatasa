@@ -1,7 +1,7 @@
 213- 👋 Hi, I’m @lupolnatasa
 - 👀 I’m мсмчсмчinteresxzcсчмted in ...xzc
-- 🌱 I’m currxcv..asdacxasxsax
-- 💞️ I’m lookinzxczxg to collaboratczxcce on ...zczxcx
+- 🌱 I’m currxcv..asdacxasxscvbax
+- 💞️ I’m locvbvcbczxcce on ...zczxcx
 - 📫 How to resdach me ...asfvxxczcxzc
 etyettrasdzcx
 <!---
