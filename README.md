@@ -1,6 +1,6 @@
 213- 👋 Hi, I’m @lupolnatasavcvcxzczxczxczxcxzczxcxzc
 - 👀 I’m мсмчсмчinteresxzcсчмted in ...xzc
-- 🌱 I’m currxcv..asdacxasxscvbax
+- 🌱 I’m currxcv..asdacxasxscvbaxsdfcvxz
 - 💞️ I’m locvbvcbczxcce on ...zczxcx
 - 📫 How to resdach me ...asfvxxczcxzc
 etyettrasdzcxіваівfsdfачмсчмсчваіваіsdasdasdfasdf
