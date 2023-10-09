@@ -2,7 +2,7 @@ asdzcxcxzzxc213- 👋 Hi, I’m @lupolnatasavcvcxzczxczxівфіввфіczxcxzcz
 - 👀 I’m мсмчсмчinteresxzcсчмted in ...xzc
 - 🌱 I’m currxcv..asdacxasxscvbaxsdfcvxzzxczxczxc
 - 💞️ I’m locvbvcbczxcce on ...zczxcxlh
-- 📫 How to resdach me ...asfvxxczcxzc
+- 📫 How to resdach me ...asfvxxczcxzc nmb
 etyettrasdzcxіваівfsdfачмсчмсчваіваіsdasdasdfasdf
 <!---gfsdasd
 lupolnatasa/lupolnatasa is a ✨ special ✨ reiulpository because its `README.mdvbx`asd (this file) appearsads on your GicnmbtHub profile.
