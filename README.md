@@ -1,5 +1,5 @@
 asdzcxcxzzxc213- 👋 Hi, I’m @lupolnatasavcvcxzczxczxівasdsadsadфівіфвіфвфівфвфіввфіczxcxzczxcaSASc cxvxzcggfdвавпвапмiikgсчasdsdasdsxcczcx
-- 👀 I’m мсмчсмчinteresfdsfdfxzcсчмted gkhsdfdsfjjk ...xzc
+- 👀 I’m мсмчсмчinteresfdsfdfxzcсчasasмted gkhsdfdsfjjk ...xzc
 - 🌱 I’m currxcv..asdacxasxscvbaxsdфівівфxlh
 - 📫 How to resdach me ...asfvxxczcxzc nmfadsfasdb
 etyettrasdzcxіваівfsdfачмсчмсчваіваіsdasdasdfasdfascxzcxz
