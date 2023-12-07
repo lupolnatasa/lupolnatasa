@@ -1,6 +1,6 @@
 asdzcxcxzzxc213- 👋 Hi, I’m vdsfdssadkkksasd@lupolnatasavcvcxzczxczxівasdsasdzcxadsadфівіфвіфвфівфвфіввфіczxcxsadasdasdasdzhhbkjhgjhczxcaSASc faddascxhkghjhghkkgjcxvxzcggfdвавпвапмiikgсчasdsdasdsxcczcx
 - 👀 I’m мсмчсмчinteresfdsfdfxzcсчasasмted gkhsdfdsfjjk ...xzc
-- 🌱 I’m currxcv..asdacxasxscvbaxsdфівівфxlh
+- 🌱 I’m currxcv..asdaasdasdasdasdcxasxscvbaxsdфівівфxlh
 - 📫 How to resdach me asdsadsad...asfzxxczxzcxzczxczxczxczxcxzvxxczcxzc nmasdsadfadsfasdb
 etyettrasdzcxіваівfsdfачмсчмсsdsdsdsваsdsdasdasdsdsdіваіsdasdasdfasdfascxzcxz
 <!---gfsdasdsdadasdasdacxzczлпоxcsadsadsacxasdxz
